@@ -13,3 +13,5 @@
 - heat up oil and deep fry it (one can use sunflower oil)
 
 (if you put the flattened dough in a tawa instead of oil it is roti)
+
+![puris with aloo palak](https://user-images.githubusercontent.com/333780/79984322-49293c00-84a9-11ea-9e7a-41e35d8c14e2.jpg)
