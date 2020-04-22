@@ -3,6 +3,7 @@
 ## Ingredients
 - 3 cups of flour
 - 1 tsp of salt
+- sunflower oil
 
 ## Preparation
 - mix salt in flour
